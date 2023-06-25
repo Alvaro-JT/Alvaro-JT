@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently working on my own pojects 💻.<br>⭐ I'm currently learning data análisis 🧑🏽‍💻.
+🔭 I'm currently working on my own projects 💻.<br>⭐ I'm currently learning data analysis 🧑🏽‍💻.
 
 
 ## 🌐 Socials:
